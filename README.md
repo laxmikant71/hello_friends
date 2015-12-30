@@ -1,3 +1,3 @@
 # hello_friends
 Just Another Repository
-hell ofriend ,iam fresher for alll things so please help me .
+hello friend ,iam fresher for all these things so please help me .
